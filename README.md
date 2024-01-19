@@ -1,1 +1,1 @@
-                                                                                                Projeto básico para treinamento pessoal.
+                                           Projeto básico para treinamento pessoal.
